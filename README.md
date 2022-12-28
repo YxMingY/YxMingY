@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YxMingY
-- 👀 I’m interested in Do something amazing
+- 👀 I’m interested in Doing something amazing
 - 🌱 I’m currently learning 语数英物化生
 - 💞️ I’m looking to collaborate on Sleep
 - 📫 How to reach me QQ(526817087)  Wechat(YxMingY)
